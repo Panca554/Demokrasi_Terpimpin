@@ -1,0 +1,1 @@
+# Demokrasi_Terpimpin
